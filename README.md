@@ -1,3 +1,6 @@
 ## Hi there 👋
 
-- 📫 How to reach me: michaelalouisenunn@gmail.com !
+- 📫 How to reach us: michaela@scalehousesystems.com !
+
+- 👾 Join our discord community!
+https://discord.gg/JbP88VJfxc
